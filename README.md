@@ -1,1 +1,1 @@
-# xorzxyz.github.io
+# xorz.xyz
